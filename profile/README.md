@@ -1,5 +1,5 @@
 
-# (.𝚅𝙾𝙸𝚁.) 𝚂𝚒𝚗𝚗𝚎𝚛𝚜 2025 - Regarder le film en 𝐒t𝐫e𝐚m𝐢n𝐠 VF
+# REGARDER. 𝚂𝚒𝚗𝚗𝚎𝚛𝚜 2025 'en 𝐒t𝐫e𝐚m𝐢n𝐠 Complet et VOD VF
 
 ### .github
 
